@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 ![MasterHead](https://te.legra.ph/file/0bc133664cd28a8339e2f.jpg)
 <h1 align="center">Hi 👋, I'm 〴ᴅᴇᴠɪʟ⌬ᴠᴇɴᴏᴍϡ</h1>
 <h3 align="center">✨ ƝƠƠƁ ЄƊƖƬƠƦ ✨</h3>
-<img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
+<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/7c/04/09/7c0409d41423f1fafc0abe74c179a3e5.gif">
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=DEVIL-VENOM&label=Profile%20views&color=0e75b6&style=flat" alt="DEVIL-VENOM" /> </p>
 
