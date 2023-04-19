@@ -21,13 +21,13 @@ Here are some ideas to get you started:
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=DEVIL-VENOM" alt="DEVIL-VENOM" /></a> </p>
 
-- 🔭 I’m currently working on [Yᴏᴜᴛᴜʙᴇ & ᴛᴇʟᴇɢʀᴀᴍ ʙᴏᴛs](https://youtube.com/@OGVENOMEDITZ)
+- 🔭 I’m currently working on [Yᴏᴜᴛᴜʙᴇ & ᴛᴇʟᴇɢʀᴀᴍ ʙᴏᴛs](https://youtube.com/@OGVENOMEDITS)
 
 - 🌱 I’m currently learning 𝐂𝐨𝐝𝐢𝐧𝐠
 
 - 👯 I’m Always Available [Hᴇʀ3 ❣️ ʙᴀʙʏ ❣️](https://t.me/ITZ_ME_YOUR_VENOM)
 
-- 👨‍💻 All of my projects are available at [https://github.com/SUMIT0481](https://github.com/SUMIT0481)
+- 👨‍💻 All of my projects are available at [https://github.com/SUMIT0481](https://youtube.com/@OGVENOMEDITS)
 
 - 📝 I regularly write My felling [https://t.me/OGVENOMEDITZ](https://t.me/OGVENOMEDITZ)
 
